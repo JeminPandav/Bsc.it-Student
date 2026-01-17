@@ -1,2 +1,2 @@
-Information Technology (IT) 
+Information Technology (BSC.IT)
 Third Year
